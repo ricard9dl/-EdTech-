@@ -1,0 +1,1 @@
+LearnSmart is a groundbreaking online learning platform connecting millions of learners with high-quality courses. Designed with a simple and modern interface, LearnSmart offers innovative learning tools to help you gain knowledge anytime, anywhere.
